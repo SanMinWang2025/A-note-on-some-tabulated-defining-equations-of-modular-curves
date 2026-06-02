@@ -1,0 +1,1 @@
+# A-note-on-some-tabulated-defining-equations-of-modular-curves
